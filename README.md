@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kamire30
-- 👀 I’m interested in making bots and leanring new things!
+- 👀 I’m interested in making bots and learning new things!
 - 🌱 I’m currently just coding a bot for fun.
 - 📫 How to reach me: add me on discord: pepega#8887
 
